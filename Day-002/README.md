@@ -1,4 +1,4 @@
- Phase 1 (Asharatu r-Rahmah)
+# Phase 1 (Asharatu r-Rahmah)
 
 ##  Day 2 - Reading / Memorize and Recite
 
@@ -41,8 +41,8 @@ There are many resources available online, including articles, videos, and refer
 - [The story of Prophet Ibrahim(A.S)](https://www.southmetroic.org/post/story-of-prophet-ibrahim-a-s-abraham)
 - [The story of Prophet Ibrahim(A.S) Sacrifice](https://islamonline.net/en/the-story-of-ibrahims-sacrifice/)
 - [Lesson from the life of Prophet Ibrahim(A.S)](https://thepilgrim.co/lessons-from-the-life-of-prophet-ibrahim)
-- [Stories Of The Prophets-10~Ibraheem / Abraham (AS) - (Part 1)](https://www.youtube.com/watch?v=ZzWI0EsWrh4)
-- [Stories Of The Prophets-10~Ibraheem / Abraham (AS) - (Part 2)](https://www.youtube.com/watch?v=IcKEwfygNS4)
+- [Stories Of The Prophets-10~Ibraheem / Abraham (AS) - (Part 1) By Mufti Menk](https://www.youtube.com/watch?v=ZzWI0EsWrh4)
+- [Stories Of The Prophets-10~Ibraheem / Abraham (AS) - (Part 2) By Mufti Menk](https://www.youtube.com/watch?v=IcKEwfygNS4)
 
 
 ## ⚠️ Disclaimer 
