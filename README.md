@@ -38,7 +38,7 @@ I believe that the task schedule will help you stay on track and make the most o
 
 ## Resources
 
-Throughout the 30-day Ramadan Task, you may find that you need additional resources to complete some of the daily tasks and challenges. I have compiled a list of helpful resources that you can use to enhance your Ramadan experience and deepen your knowledge and understanding of Islam.
+Throughout the 30-day Ramadan Challenge, you may find that you need additional resources to complete some of the daily tasks and challenges. I have compiled a list of helpful resources that you can use to enhance your Ramadan experience and deepen your knowledge and understanding of Islam.
 
 Each day's task will include any necessary resources or reference links that you need to complete it. I will provide links to relevant articles, videos, or websites that will help you gain a better understanding of the task and its purpose. These resources are carefully curated to ensure that they are accurate, informative, and helpful.
 
