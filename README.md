@@ -9,6 +9,8 @@ To participate in the 30-day Ramadan Task, follow these simple step:
 ``` c
 git clone https://github.com/<your-username>/<your-repository-name>.git
 ```
+**Note : On mobile Click on `view code` to see all days task**
+
 2. Navigate to the folder for the current day's task. For example, to access the task for Day 1, navigate to the day-1 folder.
 3. Read the task instructions in the README.md file for the current day. This file will also contain any resources or references you need to complete the task.
 4. Complete the task and reflect on your progress.
