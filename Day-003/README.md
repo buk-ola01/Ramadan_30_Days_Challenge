@@ -1,4 +1,4 @@
-Phase 1 (Asharatu r-Rahmah)
+# Phase 1 (Asharatu r-Rahmah)
 
 ## 3️⃣ Day 3 - Memorize and Recite
 
