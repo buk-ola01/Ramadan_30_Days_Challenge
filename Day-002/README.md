@@ -1,6 +1,6 @@
 # Phase 1 (Asharatu r-Rahmah)
 
-##  Day 2 - Reading / Memorize and Recite
+## 2️⃣ Day 2 - Reading / Memorize and Recite
 
 > **We'll be reviewing the story of Prophet Ibrahim(A.S) and his unwavering faith in Allah**
 
