@@ -11,13 +11,13 @@ The task for Day 2 of Ramadan 30 days Challenge involves reading about the Proph
 
 ## ℹ️ Details
 
-- Taraweeh is a special prayer performed during the Islamic month of Ramadan, typically after the Isha prayer. 
+- Taraweeh is a special prayer performed during the Islamic month of `Ramadan`, typically after the `Isha` prayer. 
 
 - It consists of 8 or 20 units of prayer (rakat), recited in pairs, and usually takes about an hour to complete.
 
-- Many Muslims consider Taraweeh prayer to be a communal activity and will attend their local mosque to perform it. It is not mandatory, 
+- Many `Muslims` consider `Taraweeh` prayer to be a communal activity and will attend their local `mosque` to perform it. It is not mandatory, 
 
-- but it is highly recommended for Muslims to participate in Taraweeh during Ramadan as it is considered a blessed and rewarding act of worship.
+- but it is highly recommended for Muslims to participate in `Taraweeh` during `Ramadan` as it is considered a blessed and rewarding act of worship.
 
 ### 📒Reading
 
