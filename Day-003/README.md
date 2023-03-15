@@ -4,7 +4,7 @@
 
 > **We'll be reviewing the dua al qunoot of witr**
 
-The task for day 3 is to recite the Dua "`Allahumma ahdina fimana adayn wa'afina fiman afayn watawalana fimana tawalain ...`"
+The Task for day 3 is to recite the Dua "`Allahumma ahdina fimana adayn wa'afina fiman afayn watawalana fimana tawalain ...`"
 
 This dua is commonly and known for it’s association with the Witr salah.
 
