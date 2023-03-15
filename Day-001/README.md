@@ -8,7 +8,7 @@ The task for Day 1 of Ramadan 30 days Challenge involves memorizing and reciting
 
 > "Allahumma inni laka sumtu wa bika aamantu wa 'alayka tawakkaltu." 
 
-This dua is commonly recited by Muslims when breaking their fast at sunset during the holy month of Ramadan.
+This dua is commonly recited by `Muslims` when breaking their fast at sunset during the holy month of `Ramadan`.
 
 ## ℹ️ Details
 
