@@ -1,15 +1,15 @@
 # Phase 1 (Asharatu r-Rahmah)
 
-## 4️⃣ Day 5 - Reading
+## 5️⃣ Day 5 - Reading
 
 > **Today we will be looking at the the story of prophet Musa(A.S) and lessons we can take from his lifetime**
 
-The task for Day 4 of `Ramadan 30 days Challenge` involves learning about the story of `Prophet Musa` and his mission to free the Israelites from slavery in Egypt
+The task for Day 4 of `Ramadan 30 days Challenge` involves learning about the story of `Prophet Musa(A.S)` and his mission to free the Israelites from slavery in Egypt
 Reflect on the importance of courage, determination, and reliance on Allah.
 
 ## ℹ️ Details
 
-The story of `Prophet Musa (Moses)` is a well-known tale in Islamic tradition. `Musa` was born in Egypt during a time when the `Pharaoh` was enslaving the Israelites.
+The story of `Prophet Musa (Moses)(A.S)` is a well-known tale in Islamic tradition. `Musa` was born in Egypt during a time when the `Pharaoh` was enslaving the Israelites.
 
 Fearing for his safety, Musa's mother placed him in a basket and set him afloat on the Nile River.
 
