@@ -43,7 +43,7 @@ It shows us that even in the face of great adversity, we should remain steadfast
 Indeed, no one despairs of relief from Allah except the disbelieving people."
 
 ## 📒 Resources (Read or Watch) 
-#### Here are some links to resources that may be helpful in memorizing the dua:
+#### Here are some links to resources that may be helpful:
 
 - [The story of Prophet Yusuf(A.S)](https://quranforkids.com/story-of-prophet-yusuf-joseph/)
 - [Life lessons from the beautiful story of Prophet Yusuf](https://muslim.sg/articles/5-life-lessons-we-can-learn-from-prophet-yusuf-s-a-s-story)
