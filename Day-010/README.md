@@ -6,6 +6,7 @@
 
 The task for Day 10 of Ramadan 30 days Challenge involves reading about the story of Prophet Muhammad(S.A.W) and his teachings of Islam
 
+Reflect on the importance of unity, compassion, and peace.
 
 ## ℹ️ Details
 
