@@ -1,6 +1,6 @@
 # Phase 1 (Asharatu r-Rahmah)
 
-## 19️⃣ Day 9 - Reading
+## 9️⃣ Day 9 - Reading
 
 > **We'll be reviewing the story of Prophet Muhammad(S.A.W)**
 
