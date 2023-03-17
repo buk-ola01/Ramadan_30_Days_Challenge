@@ -19,6 +19,8 @@ Additionally, Isa's miraculous birth and ascension to heaven are seen as symbols
 
 which can inspire people to have faith in Allah's plan and the possibility of miraculous outcomes through prayer and faith.
 
+> Quranic Verse: Surah Al-Maidah, Verse 75 - "The Messiah, son of Mary, was not but a messenger; [other] messengers have passed on before him. And his mother was a supporter of truth. They both used to eat food. Look how We make clear to them the signs; then look how they are deluded."
+
 
 
 ## 📒 Resources (Read or Watch) 
