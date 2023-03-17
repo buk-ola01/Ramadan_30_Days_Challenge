@@ -24,7 +24,7 @@ which can inspire people to have faith in Allah's plan and the possibility of mi
 
 
 ## 📒 Resources (Read or Watch) 
-#### Here are some links to resources that may be helpful in memorizing the dua:
+#### Here are some links to resources that may be helpful:
 
 - [Prophet Isa (AS) - (Jesus) - The Birth of Prophet Jesus (Isa)](https://www.alim.org/history/prophet-stories/29/2/)
 - [Story of Jesus Birth (Prophet Isa) in Quran](https://www.islamicfinder.org/knowledge/biography/story-of-jesus-birth-in-quran/)
