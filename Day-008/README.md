@@ -1,6 +1,6 @@
 # Phase 1 (Asharatu r-Rahmah)
 
-## 1️⃣ Day 1 - Reading
+## 8️⃣ Day 8 - Reading
 
 > **We'll be looking at the story of Prophet Isa (A.S)**
 
