@@ -18,7 +18,7 @@ The revelations continued for `23 years` and were recorded in the `Holy Quran`.
 
 
 ## 📒 Resources (Read or Watch) 
-#### Here are some links to resources that may be helpful in memorizing the dua:
+#### Here are some links to resources that may be helpful:
 
 - [Chapter 3: Policies Of The Prophet At Times Of Conflict](https://www.al-islam.org/prophet-muhammad-mercy-world-sayyid-muhammad-sadiq-al-shirazi/chapter-3-policies-prophet-times)
 - [Chapter 4: Social Policies Of Prophet Muhammad](https://www.al-islam.org/prophet-muhammad-mercy-world-sayyid-muhammad-sadiq-al-shirazi/chapter-4-social-policies-prophet)
