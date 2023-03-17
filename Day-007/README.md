@@ -17,12 +17,14 @@ This dua can be recited at any time, but it is especially recommended to recite 
 2 . Another dua that can be recited for seeking forgiveness and mercy is "Rabbana zalamna anfusina wa il lam taghfir lana wa tarhamna lana kunan minal-khasireen"
 
 > رَبَّنَا ظَلَمْنَا أَنفُسَنَا وَإِن لَّمْ تَغْفِرْ لَنَا وَتَرْحَمْنَا لَنَكُونَنَّ مِنَ الْخَاسِرِينَ
-Our Lord! We have wronged our own souls: If thou forgive us not and bestow not upon us Thy Mercy, we shall certainly be lost.
+
+> Our Lord! We have wronged our own souls: If thou forgive us not and bestow not upon us Thy Mercy, we shall certainly be lost.
 
 3 . Muslims often recite various supplications for seeking forgiveness and mercy, including "Rabbana 'atina mil-ladunka Rahmataw wa hayyi lana min amrina rashada"
 
 > رَبَّنَا آتِنَا مِن لَّدُنكَ رَحْمَةً وَهَيِّئْ لَنَا مِنْ أَمْرِنَا رَشَدًا
-Our Lord! Bestow on us Mercy from Thyself, and dispose of our affair for us in the right way!
+
+> Our Lord! Bestow on us Mercy from Thyself, and dispose of our affair for us in the right way!
 
 It is important to remember that Allah's mercy is abundant and that He is always willing to forgive those who sincerely repent.
 
