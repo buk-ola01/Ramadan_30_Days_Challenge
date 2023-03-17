@@ -45,7 +45,7 @@ So take what I have given you and be among the grateful." And We wrote for him o
 "Take them with determination and order your people to take the best of it. I will show you the home of the defiantly disobedient."
 
 ## 📒 Resources (Read or Watch) 
-#### Here are some links to resources that may be helpful in memorizing the dua:
+#### Here are some links to resources that may be helpful:
 
 - [The story of Prophet Musa](https://quranforkids.com/story-of-prophet-musa/)
 - [Interesting lesson from the story of Musa and Pharaoh - Mufti Menk](https://www.youtube.com/watch?v=A80t4Dkz_U8)
