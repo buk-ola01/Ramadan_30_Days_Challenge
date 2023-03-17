@@ -1,6 +1,6 @@
 # Phase 1 (Asharatu r-Rahmah)
 
-## 7️⃣ Day & - Memorize and Recite
+## 7️⃣ Day 7 - Memorize and Recite
 
 > **Memorize a dua for seeking Allah's forgiveness and mercy in the afterlife.**
 
