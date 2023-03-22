@@ -26,6 +26,48 @@ Once you have learned the dua, you can practice reciting it out loud until you c
 To help with memorization, there are also many resources available that offer tips and techniques for memorizing duas and other Islamic texts.
 For example, you can find videos on YouTube or articles on Islamic websites that provide advice on how to memorize duas effectively.
 
+## Method of Completing the Quran
+
+> The method of completing the Qur’an during (30 days) every day a portion of the Qur’an
+
+- [x] Al-Fajr: 4 Pages
+- [x] Zuhur: 4 pages
+- [x] Al-Asr: 4 pages
+- [x] Magrib: 4 pages
+- [x] Isha: 4 pages
+
+> The method of completing the Qur’an during (15 days) every day 
+
+- [x] Al-Fajr: 8 Pages
+- [x] Zuhur: 8 pages
+- [x] Al-Asr: 8 pages
+- [x] Magrib: 8 pages
+- [x] Isha: 8 pages
+
+> The method of completing the Qur’an during (12 days) two and a half parts every day
+
+- [x] Al-Fajr: 10 Pages
+- [x] Zuhur: 10 pages
+- [x] Al-Asr: 10 pages
+- [x] Magrib: 10 pages
+- [x] Isha: 10 pages
+
+> The method of completing the Qur’an during (10 days) every day has three parts
+
+- [x] Al-Fajr: 12 Pages
+- [x] Zuhur: 12 pages
+- [x] Al-Asr: 12 pages
+- [x] Magrib: 12 pages
+- [x] Isha: 12 pages
+
+> The method of completing the Qur’an during (6 days) every day has five parts
+
+- [x] Al-Fajr: 20 Pages
+- [x] Zuhur: 20 pages
+- [x] Al-Asr: 20 pages
+- [x] Magrib: 20 pages
+- [x] Isha: 20 pages
+
 ## 📒 Resources (Read or Watch) 
 #### Here are some links to resources that may be helpful in memorizing the dua:
 
