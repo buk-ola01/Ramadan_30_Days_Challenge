@@ -6,7 +6,7 @@
 
 The task for Day 1 of Ramadan 30 days Challenge involves memorizing and reciting the daily Dua for breaking fast, which is
 
-> "Allahumma inni laka sumtu wa bika aamantu wa 'alayka tawakkaltu." 
+> "Allahumma inni laka sumtu wa bika aamantu wa 'alayka tawakkaltu wa'ala rizqiqa haftartu."
 
 This dua is commonly recited by `Muslims` when breaking their fast at sunset during the holy month of `Ramadan`.
 
@@ -18,6 +18,7 @@ Here is a breakdown of the dua:
 - [x] "inni laka sumtu" means "I fasted for You" and expresses the intention and purpose of the fast.
 - [x] "wa bika aamantu" means "and I believe in You" and affirms the Muslim's faith in Allah.
 - [x] "wa 'alayka tawakkaltu" means "and I rely on You" and expresses trust and dependence on Allah.
+- [x] "wa aala rizqiqa aftartu" means " and i break my fast in your sustenance."
 
 To complete this task, you can start by learning the words of the dua and their meanings.
 You can find resources in the resources section below that provide the text and translation of the dua.
